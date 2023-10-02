@@ -1,2 +1,2 @@
-### Olá, eu sou o Atos Pereira🦄
+### Olá! Eu sou o Atos Pereira 🦄
 
